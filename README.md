@@ -8,5 +8,5 @@
 
 :roller_coaster: Such a hard work, hã?
 
-:dove: Embedded in the spirit of service.
+:dove: Driven by the spirit of service.
 
